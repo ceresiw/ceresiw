@@ -3,7 +3,7 @@
 # <img src="https://media.giphy.com/media/ObNTw8Uzwy6KQ/giphy.gif" width="30px">&nbsp;***About me***
 She/her  
 20yo  
-Hi, I'm just a student who loves learning new things
+I'm just a student who loves learning new things
 <p align="center">
 
 
