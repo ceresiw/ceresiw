@@ -3,7 +3,7 @@
 # ***About me***
 She/her  
 20yo  
-I'm just a student who loves learning new things
+I'm just an Industrial Civil Engineering student
 <p align="center">
 
 
